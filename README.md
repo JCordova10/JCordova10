@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **JCordova1277@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/jose-cordova-67aa30160/])
+- 📄 Know about my experiences [https://www.linkedin.com/in/jose-cordova-67aa30160/]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
